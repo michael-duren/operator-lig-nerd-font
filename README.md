@@ -1,0 +1,1 @@
+# operator-lig-nerd-font
